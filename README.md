@@ -1,2 +1,0 @@
-# QUESACO
-QUESACO
